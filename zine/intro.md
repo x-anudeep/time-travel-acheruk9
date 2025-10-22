@@ -1,1 +1,1 @@
-This zine explores how the time machine changes history from the author’s perspective.
+This zine explores how the time machine changes history and redefines imagination, combining both the author’s and editor’s perspectives.
