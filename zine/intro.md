@@ -1,2 +1,1 @@
-## Intro
-This zine explores the idea of a time machine and how it could affect reality.
+This zine explores how the time machine redefines imagination from the editor’s point of view.
